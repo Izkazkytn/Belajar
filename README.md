@@ -1,2 +1,2 @@
 # Belajar
-Macam macam pembelajaran 
+hasil pembelajaran
